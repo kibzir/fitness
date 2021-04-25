@@ -1,1 +1,1 @@
-# fitness
+Лучше всего запускать на iphone 8 plus)
